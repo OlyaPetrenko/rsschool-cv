@@ -1,7 +1,7 @@
 # Personal information
 * **Name** Olga Petrenko
 * **Date of birth** 02 april 1997
-* **Phone number** +7-951-675-2609
+* **Phone number** +7-952-675-2609
 * **Email** petrenkoooolga@gmail.com
 * ! [photo]("C:\Users\79516\rsschool-cv\Photo for CV.jpeg")
 ## Profile
