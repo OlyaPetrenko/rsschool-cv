@@ -3,6 +3,7 @@
 * **Date of birth**: 02 april 1997
 * **Phone number**: +7-952-675-2609
 * **Email**: petrenkoooolga@gmail.com
+* **Photo** ! [Photo]((https://vk.com/photos?z=photo30533827_457242321%2Fphoto_feed30533827))
 ## Profile
 * **Personal qualities** 
 + purposefulness
